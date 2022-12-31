@@ -1,1 +1,4 @@
-https://github.com/Haroon20191398/install/edit/main/README.md
+
+باندي کلیک وکړي او افلیکشن ډوالنوډ کړي view code
+
+په درنښت هارون ارمان 😘
